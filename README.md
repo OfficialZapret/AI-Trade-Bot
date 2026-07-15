@@ -1,6 +1,7 @@
 КАЧАТЬ ТУТ - https://github.com/OfficialZapret/zapret-discord-youtube/releases/tag/zapret
 Пароль - 1111
-Caution
+
+
 
 ФЕЙКИ
 Я не веду никакие другие страницы/группы в телеграм/ютуб каналы
